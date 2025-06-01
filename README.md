@@ -4,7 +4,7 @@ A Leading FMCG with In-House Marketing Strength
 As a [leading FMCG with in-house marketing](https://www.gatbrozambia.com/index.php), we don’t just distribute — we create value. Our marketing division works closely with partner brands to craft campaigns that resonate with Zambian consumers. The result? Stronger shelf presence, better conversions, and lasting brand equity.
 
 How FMCG Distributors in Zambia Drive Retail Growth
-Our efficient network of [FMCG distributors in Zambia](https://www.gatbrozambia.com/index.php) supports retail growth by maintaining consistent product flow. Whether you're a startup brand or an established multinational, we make sure your goods reach customers quickly, reliably, and in perfect condition.
+Our efficient network of FMCG distributors in Zambia supports retail growth by maintaining consistent product flow. Whether you're a startup brand or an established multinational, we make sure your goods reach customers quickly, reliably, and in perfect condition.
 
 FMCG Companies in Zambia: Collaboration That Works
 Working alongside major [FMCG companies in Zambia](https://www.gatbrozambia.com/index.php), we support a wide range of categories, from personal care to packaged foods. Our focus is always on quality, consistency, and consumer trust.
